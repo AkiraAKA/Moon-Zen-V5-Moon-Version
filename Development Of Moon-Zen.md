@@ -26,6 +26,6 @@ I will keep this going, this project was developed by 1 person which is meowbuck
 discord - meowbucks 
 Instagram - travseralcharacter 
 https://pastebin.com/u/lawls_
-v3rm.net/members/imlagging.60589
+https://v3rm.net/members/imlagging.60589
 
 also thank you so much it means the world to me.❤️
